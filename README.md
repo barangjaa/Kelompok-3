@@ -1,0 +1,1 @@
+mohon maaf karena kurangnya waktu dan juga ilmu yang kami miliki maka game ini belum sepenuhnya selesai, karena musuh dan juga player healthnya masih belum berkerja dengan baik, karena sudah deadline h-0 maka kami putuskan untuk tetap mengumpulkan seadanya.
